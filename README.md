@@ -1,1 +1,1 @@
-images only / publically availabe preferred / no IP
+images only / publically available preferred / no IP
